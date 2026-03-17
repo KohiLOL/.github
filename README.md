@@ -1,4 +1,4 @@
-![s](https://github.com/user-attachments/assets/df7dffff-8795-4f68-b604-86197e1f7f48)
+![s](https://github.com/KohiLOL/.github/blob/main/content/kohilol.png)
 
 ##            						 Kohi.LoL
 
